@@ -213,4 +213,4 @@ Motion Detection is offered as a full free version, providing all features and r
 Get started today with **Motion Detection free download** and transform your security management!
 
 ---
-**Last updated:** 2026-10-23 13:57:12 UTC
+**Last updated:** 2026-10-23 18:04:47 UTC
